@@ -6,5 +6,6 @@
 - 📫 How to reach me:
   + :globe_with_meridians: Facebook: https://www.facebook.com/trandddanh
   + 📫 Email: trandaxau@gmail.com
+  + :link: Linkedin: https://www.linkedin.com/in/%C4%91%E1%BB%A9c-anh-tr%E1%BA%A7n-72b120233/
 
 
